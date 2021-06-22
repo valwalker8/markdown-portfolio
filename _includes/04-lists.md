@@ -1,3 +1,3 @@
-1. Playing/Coaching Volleyball 
-2. Watching reality TV
-3. Eating Pizza 
+1. Playing/Coaching Volleyball 🏐
+2. Watching reality TV 📺
+3. Eating Pizza 🍕
